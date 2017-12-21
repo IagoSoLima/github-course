@@ -6,3 +6,4 @@ Saiba mais em [google.com.br](https:\\google.com.br)
 
 Gostou do curso? Quer mais? Ajude com uma doacao, ate um cafe e valido =>
 
+oi
